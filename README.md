@@ -1,6 +1,6 @@
 # Juan Stevan
 ##Screenshot Akun Github
-!![image](https://github.com/user-attachments/assets/cb1b7b56-f512-4983-89bf-d06a64f872f6)
+!![image](https://github.com/Stevan789/Tugas-Metastro/blob/main/Cuplikan%20layar%202024-09-25%20214645.png)
 
 
 ##Project Terbaru : 
